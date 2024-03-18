@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to cry silently. 
 - 💞️ I’m looking to collaborate on a reggaeton album.
 - 📫 How to reach me: interpretive dance. 
-- 😄 Pronouns: ...
+- 😄 Pronouns: He/him
 - ⚡ Fun fact: whales were land mammals once. It's unclear how they were able to get around on land though.
 
 <!---
