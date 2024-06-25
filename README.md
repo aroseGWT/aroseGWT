@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a reggaeton album.
 - 📫 How to reach me: interpretive dance. 
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: whales were land mammals once. It's unclear how they were able to get around on land though.
+- ⚡ Fun fact: whales were land mammals once. It's unclear how they were able to get around on land though because they do not have legs.
 
 <!---
 aroseGWT/aroseGWT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
